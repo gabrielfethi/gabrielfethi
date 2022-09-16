@@ -4,7 +4,7 @@
 
 - 👨‍💻 All of my projects are available at [www.gabrielfethi.com](www.gabrielfethi.com)
 
-- ⚡ Fun fact **History Bugg**
+- ⚡ Fun fact **History Buff**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
